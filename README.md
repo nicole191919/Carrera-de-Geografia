@@ -13,8 +13,8 @@ La carrera de geografía desde diferentes campos parte de una vision mas integra
 
 Entre algunas de estas podemos encontar ramas tales como:
 
-- Geomorfología\
-- Climatología\
+- Geomorfología
+- Climatología
 - Geografía Humana
 - Cartografía
 
