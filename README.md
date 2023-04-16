@@ -30,3 +30,6 @@ La cartografía es otra herramienta fundamental para la geografía, ya que permi
 En resumen, la carrera de geografía es una de las más apasionantes y relevantes en la actualidad, ya que *permite entender los patrones y procesos que se desarrollan en la tierra y su relación con las sociedades humanas*. [Carrera de Geografía](https://www.buscouniversidad.com.ar/orientacion/por-que-estudiar-la-carrera-de-geografia/)
 
 ![](Geografía.png)
+
+Instituto Geográfico Agustín Codazzi. (nd-d). ¿Qué es la geografía? https://www.igac.gov.co/es/contenido/que-es-la-geografia
+
