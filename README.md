@@ -16,7 +16,7 @@ Entre algunas de estas podemos encontar ramas tales como:
 - Geomorfología\
 - Climatología\
 - Geografía Humana\
-- Cartografía\ 
+- Cartografía
 
 
 Una de las ramas más importantes de la geografía es la geomorfología, que estudia la forma y la estructura del relieve terrestre. La geomorfología se enfoca en el **análisis de los procesos** que dan forma a la superficie terrestre, como la erosión, la sedimentación, la tectónica de placas y la acción del clima. Los geógrafos especializados en geomorfología pueden trabajar en la gestión del territorio, la prevención de riesgos naturales y la evaluación de impacto ambiental, entre otros pocesos.
