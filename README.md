@@ -35,6 +35,4 @@ Instituto Geográfico Agustín Codazzi. (nd-d). ¿Qué es la geografía? https:/
 
 Voccia, L., & Voccia, L. (2022, 14 de febrero). ¿Por qué estudiar la Carrera de Geografía? Buscouniversidad.com.ar . https://www.buscouniversidad.com.ar/orientacion/por-que-estudiar-la-carrera-de-geografia/
 
-Geografía png imágenes | Ala PNG . (Dakota del Norte). https://www.pngwing.com/es/search?q=geograf%C3%ADa
-
 Geografía Line Art, Geografía, Dibujo, Forma de relieve, Blanco y negro, Círculo, Área, Esfera, zona, En blanco y negro, circulo png | Ala PNG . (Dakota del Norte). https://www.pngwing.com/es/free-png-vigqy
