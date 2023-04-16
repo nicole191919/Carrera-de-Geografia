@@ -31,10 +31,10 @@ En resumen, la carrera de geografía es una de las más apasionantes y relevante
 
 ![](Geografía.png)
 
-Voccia, L., & Voccia, L. (2022, 14 de febrero). ¿Por qué estudiar la Carrera de Geografía? Buscouniversidad.com.ar . https://www.buscouniversidad.com.ar/orientacion/por-que-estudiar-la-carrera-de-geografia/
-
 Geografía Line Art, Geografía, Dibujo, Forma de relieve, Blanco y negro, Círculo, Área, Esfera, zona, En blanco y negro, circulo png | Ala PNG . (Dakota del Norte). https://www.pngwing.com/es/free-png-vigqy
 
 Ilustraciones de geografía con lindo estilo de dibujos animados compas globo mapa atlas binoculares contornos nube sol Vector Premium . (2022, 1 de julio). Freepik. https://www.freepik.es/vector-premium/ilustraciones-geografia-lindo-estilo-dibujos-animados-compas-globo-mapa-atlas-binoculares-contornos-nube-sol_29010443.htm
 
 Instituto Geográfico Agustín Codazzi. (sf-e). ¿Qué es la geografía? https://www.igac.gov.co/es/contenido/que-es-la-geografia
+
+Voccia, L. y Voccia, L. (2022b, 14 de febrero). ¿Por qué estudiar la Carrera de Geografía? Buscouniversidad.com.ar . https://www.buscouniversidad.com.ar/orientacion/por-que-estudiar-la-carrera-de-geografia/
