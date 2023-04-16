@@ -15,7 +15,7 @@ Entre algunas de estas podemos encontar ramas tales como:
 
 - Geomorfología\
 - Climatología\
-- Geografía Humana\
+- Geografía Humana
 - Cartografía
 
 
