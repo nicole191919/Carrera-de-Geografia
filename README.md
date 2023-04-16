@@ -34,3 +34,5 @@ En resumen, la carrera de geografía es una de las más apasionantes y relevante
 Instituto Geográfico Agustín Codazzi. (nd-d). ¿Qué es la geografía? https://www.igac.gov.co/es/contenido/que-es-la-geografia
 
 Voccia, L., & Voccia, L. (2022, 14 de febrero). ¿Por qué estudiar la Carrera de Geografía? Buscouniversidad.com.ar . https://www.buscouniversidad.com.ar/orientacion/por-que-estudiar-la-carrera-de-geografia/
+
+Aviso de redirección . (Dakota del Norte). https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngwing.com%2Fes%2Fsearch%3Fq%3Dgeograf%25C3%25ADa&psig=AOvVaw0x-ECI-d8unWwja7Mwh6R7&ust=1681707356513000&source=images&cd= vfe&ved=0CBMQjhxqFwoTCPjKza_drf4CFQAAAAAdAAAAABAE
